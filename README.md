@@ -1,4 +1,4 @@
-# NAGAD_INFO
+# LMNx9 NAGAD INFO v2
 Get Nagad Info 🔥 Full Info Paid &amp; Half Info Free 🌺 Developed By - [DARK LMNx9](https://t.me/x_LMNx9)
 
 ![](https://github.com/LMNx9-JOHNY/NAGAD_INFO/blob/main/IMG_20240501_232225.png)
